@@ -7,3 +7,8 @@ Enjoy :D
 
 have problems or idea?
 Write me on discord: 3uer
+
+C-H-E-A-T-S
+
+![загружено](https://github.com/user-attachments/assets/38788211-a1c1-4bda-8670-de1a73f0a485)
+
