@@ -1,4 +1,3 @@
 ## Hi there 👋
 Im 3uer
-This is test repository 
-and you can leave
+This is Fast Arhive hacks Lest go (all hack you can download on release channel)
