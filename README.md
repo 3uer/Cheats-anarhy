@@ -13,3 +13,9 @@ C-H-E-A-T-S
 
 
 ![загружено-removebg-preview](https://github.com/user-attachments/assets/161771ef-5403-43bb-a3ce-95ef08689427)
+
+
+
+
+
+Create by: 3uer
